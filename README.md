@@ -1,1 +1,0 @@
-# FRinter-vpn
